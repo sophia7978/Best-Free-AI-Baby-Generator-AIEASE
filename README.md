@@ -3,6 +3,7 @@
 Ever wondered what your little one might look like? If you’ve imagined the perfect mix of your features and your partner’s, you’re not alone – and now, exploring this curiosity is easier than ever with AI technology. Enter **AIEASE**, the best free online AI baby generator, designed to deliver a fun, heartwarming experience for parents-to-be, newlyweds, or anyone dreaming of their future family. 
 
 This blog dives into how this revolutionary tool can turn your imagination into a visual reality, showcasing its features and benefits while answering all your burning questions. 
+
 ![unnamed (1)](https://github.com/user-attachments/assets/d0374a6f-df12-4f0b-9d33-739ccdde72db)
 
 ## What is a Baby Generator? 
